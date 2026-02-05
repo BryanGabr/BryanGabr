@@ -45,7 +45,7 @@
 ---
 
 ## 📫 Como me encontrar
-- [LinkedIn](https://www.linkedin.com/in/bryangabriel)
+- [LinkedIn](https://www.linkedin.com/in/bryan-gabriel-queiroz)
 
 ---
 
